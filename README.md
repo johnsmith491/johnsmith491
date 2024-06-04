@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @johnsmith491
 - 👀 I’m interested in SEO
-- 🌱 I’m currently learning SEO and i am doing it on https://fifamobilefc.com/
+- 🌱 I’m currently learning SEO
 - 📫 How to reach me  https://fifamobilefc.com/
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
